@@ -4,7 +4,7 @@ Access the complete TradingView toolkit with advanced charting, premium indicato
 
 [![Download Professional Suite](https://img.shields.io/badge/Download_Professional_Suite-brightgreen?style=for-the-badge&logo=android)](#)  
 
-![TradingView Advanced Charts](https://tse1.mm.bing.net/th?id=OIP.example9&pid=Api)  
+![TradingView Advanced Charts](https://playapks.com/wp-content/uploads/2024/04/TradingView-APK-B.webp)  
 *Professional-grade market analysis at your fingertips*  
 
 ---  
@@ -38,10 +38,11 @@ Access the complete TradingView toolkit with advanced charting, premium indicato
 
 [![Download Professional Suite](https://img.shields.io/badge/Download_Professional_Suite-brightgreen?style=for-the-badge&logo=android)](#)  
 
-![TradingView Dashboard](https://tse2.mm.bing.net/th?id=OIP.example10&pid=Api)  
+![TradingView Dashboard](https://lmhmod.me/wp-content/uploads/2022/07/TradingView-2.jpg)  
 *Your complete trading workstation*  
 
 ---  
 
 ### 🔍 Popular Terms  
 
+TradingView Mod Apk, TradingView Apk Download, TradingView Apk Mod, tradingview premium apk, tradingview premium mod apk, tradingview download, tradingview premium, trading view premium, tradingview apk, tradingview mod, tradingview mod apk premium unlocked, TradingView Mod Download
